@@ -10,7 +10,7 @@
   
   At this time, it was May 9, 2017 to May 9, 2018. At the beginning of 2018, I had started eating chocolate. And in late 2017, I went to a Nepali festival where I was given a necklace made of flowers and a long piece of thread on the inside. My mom took many photos of us and one of them showed me on a concrete road. Here's what it looks like:
 
-![
+![abc](aayog.jpeg)
 
 
 
