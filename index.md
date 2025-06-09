@@ -22,4 +22,7 @@
 
 ## When I Was 4 Years Old
 
+  At 4 years, oh boy, oh boy, was I growing fast! This time was May 9, 2020 to May 2021. I'm still in preschool, and this is what I look like:
+
+![
   
